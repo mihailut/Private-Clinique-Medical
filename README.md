@@ -1,3 +1,3 @@
-# Private-Clinique-Medical
+# Private-Medical-Clinic
 
 https://centrulmedicalsina.com/
